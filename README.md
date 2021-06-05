@@ -2,4 +2,4 @@
 
 
 
-Check this out => https://mzaifquraishi.el.r.appspot.com/
+Check this out => http://mzq.co.in/
